@@ -14,7 +14,7 @@ Je nach Kontext und Kompetenzen versteht hier jeder etwas anderes.
 Im Internet finden sich  zahlreiche Definitionen dafür die alle wohlbegründet und valide sind.    
 Auf der anderen Seite schafft diese Vielfalt Unsicherheit bei allen Beteiligten, da eben im allgemeinen nicht klar ist, was genau gemeint ist.
 Daher sollte, wenn über Digitaliserung gesprochen wird, genau beschrieben werden über was gesprochen wird, damit allen Beteiligten die Erwartungshaltung klar ist.
-Das ist nicht immer einfach, da im allgemeinen bei den an der Diskussion beteiligten ein unterschiedliches Kompotenz-Niveau und Verständnis des Themas vorhanden ist.     
+Das ist nicht immer einfach, da im allgemeinen bei den an der Diskussion beteiligten ein unterschiedliches Kompetenz-Niveau und Verständnis des Themas vorhanden ist.     
 In diesem Sinne:    
 Für mich lässt sich das Thema Digitaliserung sehr schön in folgenden 3 Dimensionen darstellen.      
 + Technik
