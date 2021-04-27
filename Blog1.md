@@ -6,7 +6,7 @@ Ich hatte das Glück, die technologische Entwicklung mehr als 40 Jahre lang zu b
 Das erforderte ein ständiges Erlernen und Anpassen an die neuen Technolgien um erfolgreich in der Produktentwicklung zu überleben. 
 Aber nicht nur das Erlernen der Technik war wichtig, sondern auch wie wir als Gemeinschaft mit diesen Entwicklungen umgehen.
 Hier sehe ich jetzt, dass wir uns mit der Digitalisierung in der Breite verändern müssen und dies sehr schnell, da wir aufholen müssen.
-Daher möchte ich mein Wissen und meine Erfahrungen gerne teilen und darüber diskutieren.
+Daher möchte ich mein Wissen und meine Erfahrungen gerne teilen und über das Thema mit Ihnen diskutieren.
 Wer mehr über mich in Erfahrung bringen möchte schaut auf Xing oder LinkedIn nach.
 
 Was ist denn nun Digitalisierung?   
